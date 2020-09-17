@@ -1,2 +1,2 @@
 # Actividad_2_EstadosDeMexico
-Jesus Jared Diaz Coheterp
+Jesus Jared Diaz Cohetero
